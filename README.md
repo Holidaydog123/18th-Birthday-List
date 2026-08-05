@@ -7,9 +7,7 @@ https://www.pumpkinknives.com/product/parfait-button-2/
 
 https://www.pumpkinknives.com/product/preorder-neko-core-matcha-sticker-sheet-copy/
 
-https://www.pumpkinknives.com/product/neko-boy-enamel-pin/
-
-https://www.pumpkinknives.com/product/ceo-of-puppy-boys-enamel-pin/
+https://www.pumpkinknives.com/product/neko-boy-enamel-pin/ (Gold version)
 
 18+/suggestive section:
 https://www.pumpkinknives.com/product/acrylic-block-standee/
