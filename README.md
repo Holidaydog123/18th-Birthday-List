@@ -11,8 +11,6 @@ https://www.pumpkinknives.com/product/r18-ribbons-leather-ad-catboys-illustratio
 
 Other:
 
-https://www.pumpkinknives.com/product/koneko-print/
-
 https://www.pumpkinknives.com/product/parfait-button-2/
 
 https://www.pumpkinknives.com/product/preorder-neko-core-matcha-sticker-sheet-copy/
