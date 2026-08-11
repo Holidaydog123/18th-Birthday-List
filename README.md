@@ -13,8 +13,6 @@ Other:
 
 https://www.pumpkinknives.com/product/parfait-button-2/
 
-https://www.pumpkinknives.com/product/preorder-neko-core-matcha-sticker-sheet-copy/
-
 18+/suggestive section:
 
 https://www.pumpkinknives.com/product/acrylic-block-standee/
