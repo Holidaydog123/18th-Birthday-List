@@ -19,8 +19,6 @@ https://www.pumpkinknives.com/product/acrylic-block-standee/
 (Puppy boy version)
 (Green catboy version)
 
-https://www.pumpkinknives.com/product/parfait-print/
-
 https://www.pumpkinknives.com/product/in-love-with-catboy-sticker/
 
 https://www.pumpkinknives.com/product/catboy-peaker-sticker/
