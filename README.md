@@ -10,6 +10,8 @@ https://www.pumpkinknives.com/product/do-not-disturb-catboy/
 
 https://www.etsy.com/listing/4338637677/blvn-yaoi-protagonist-holographic-heart?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=bumper+sticker+yaoi&ref=sr_gallery-2-52&sr_prefetch=1&pf_from=search&content_source=765f3c63-05c6-4ed8-b7e7-4b36818ff141%3ALTd8051f1221804740131d5001243dd5aa3611eee5&organic_search_click=1&logging_key=765f3c63-05c6-4ed8-b7e7-4b36818ff141%3ALTd8051f1221804740131d5001243dd5aa3611eee5&variation0=5613748868 (Tamamori and Aoba)
 
+https://www.aliexpress.us/item/3256809702966864.html?spm=a2g0o.productlist.main.35.454541dbCWkWnf&algo_pvid=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d&algo_exp_id=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d-32&pdp_ext_f=%7B%22order%22%3A%2244%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%2138.39%2120.53%21%21%21257.50%21137.73%21%4021032c8d17868533217968653e0e11%2112000059773051188%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895%3BpisId%3A5000000214298657&curPageLogUid=pHc08gezrJ6R&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005009889281616%7C_p_origin_prod%3A (Ren A)
+
 **Keychains:**
 
 https://www.etsy.com/listing/4466371599/dramatical-murder-slow-damage-sweet-pool?ref=shop_home_feat_4&sr_prefetch=1&pf_from=shop_home&logging_key=71b7e427515d0e6af8cd2f8bc4ff55e4f596283a%3A4466371599&variation0=6553553120 (Aoba)
