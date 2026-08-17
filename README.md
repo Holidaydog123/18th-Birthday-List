@@ -57,8 +57,6 @@ https://www.aliexpress.us/item/3256812667577230.html?spm=a2g0o.productlist.main.
 
 https://www.aliexpress.us/item/3256812520888134.html?src=google&src=google&albch=shopping&acnt=231-612-1468&isdl=y&slnk=&plac=&mtctp=&albbt=Google_7_shopping&aff_platform=google&aff_short_key=_oFgTQeV&gclsrc=aw.ds&albagn=888888&ds_e_adid=&ds_e_matchtype=&ds_e_device=c&ds_e_network=x&ds_e_product_group_id=&ds_e_product_id=en3256812520888134&ds_e_product_merchant_id=107847537&ds_e_product_country=US&ds_e_product_language=en&ds_e_product_channel=online&ds_e_product_store_id=&ds_url_v=2&albcp=22973313026&albag=&isSmbAutoCall=false&needSmbHouyi=false&gad_source=1&gad_campaignid=22977460537&gbraid=0AAAABBR8kP3dv7gTxl6vQNDXtnFDLaCO0&gclid=Cj0KCQjwkOvTBhDgARIsAKUNyRvNdA8c2zG8NCBZoQ1qAJBGVBaUulGdJM7k1rDjCVt9d8JzZxQCXqoaAuv_EALw_wcB&gatewayAdapt=glo2usa (Style A)
 
-https://www.aliexpress.us/item/3256809702966864.html?spm=a2g0o.productlist.main.35.454541dbCWkWnf&algo_pvid=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d&algo_exp_id=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d-32&pdp_ext_f=%7B%22order%22%3A%2244%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%2138.39%2120.53%21%21%21257.50%21137.73%21%4021032c8d17868533217968653e0e11%2112000059773051188%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895%3BpisId%3A5000000214298657&curPageLogUid=pHc08gezrJ6R&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005009889281616%7C_p_origin_prod%3A (Ren A)
-
 
 **Other:**
 
