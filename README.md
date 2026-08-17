@@ -1,6 +1,6 @@
 # 18th-Birthday-List
 Birthday gifts!! :P
-**(keychains and Etsy preferred)**
+**(Keychains and Etsy preferred)**
 
 **Top Priority/Please get:**
 
