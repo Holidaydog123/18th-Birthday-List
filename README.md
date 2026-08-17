@@ -4,6 +4,8 @@ Birthday gifts!! :P
 
 **(For anonymous gifts: the theme is Nitro Chiral main characters. Akira, Aoba, Youji, Towa, and Konoe)**
 
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+
 **Top Priority/Please get:**
 
 https://www.pumpkinknives.com/product/r18-ribbons-leather-ad-catboys-illustration-book/
