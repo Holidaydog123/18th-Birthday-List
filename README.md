@@ -9,9 +9,9 @@ Birthday gifts!! :P
 
 **Top Priority/Please get:**
 
-https://www.pumpkinknives.com/product/r18-ribbons-leather-ad-catboys-illustration-book/
+https://www.etsy.com/listing/4463867693/original-ribbons-leather-and-catboys?ref=shop_home_feat_2&sr_prefetch=1&pf_from=shop_home&logging_key=8354870d0ef137fad8f23de4728fd300584225ff%3A4463867693
 
-https://www.pumpkinknives.com/product/do-not-disturb-catboy/
+https://www.etsy.com/listing/1832642420/catboy-stickers-holographic-i-3-catboys?sr_prefetch=1&pf_from=shop_home&ref=shop_home_active_25&crt=1&logging_key=645ddead73bd4385b28000a8855b0b0d0f568c12%3A1832642420
 
 https://www.etsy.com/listing/4338637677/blvn-yaoi-protagonist-holographic-heart?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=bumper+sticker+yaoi&ref=sr_gallery-2-52&sr_prefetch=1&pf_from=search&content_source=765f3c63-05c6-4ed8-b7e7-4b36818ff141%3ALTd8051f1221804740131d5001243dd5aa3611eee5&organic_search_click=1&logging_key=765f3c63-05c6-4ed8-b7e7-4b36818ff141%3ALTd8051f1221804740131d5001243dd5aa3611eee5&variation0=5613748868 (Tamamori and Aoba)
 
@@ -37,17 +37,17 @@ https://www.etsy.com/listing/1672465116/yaoi-boys?ls=s&ga_order=most_relevant&ga
 
 **Stickers:**
 
-https://www.pumpkinknives.com/product/in-love-with-catboy-sticker/
+https://www.etsy.com/listing/4539788921/in-love-with-a-catboy-sticker?sr_prefetch=1&pf_from=shop_home&ref=shop_home_active_2&crt=1&logging_key=9a0a1ac5ce36973d0fe3fa742dc2d1498adbd474%3A4539788921
 
 **Pins:**
 
-https://www.pumpkinknives.com/product/neko-boy-enamel-pin/ (gold)
+https://www.etsy.com/listing/1185022261/anime-neko-boy-ceo-of-cat-boys-enamel?sr_prefetch=1&pf_from=shop_home&ref=shop_home_active_11&crt=1&logging_key=dbdb4314350e6c22b9c30e901bc4e8d48c9d8440%3A1185022261 (gold)
 
 https://www.aliexpress.us/item/3256810143179155.html?spm=a2g0o.productlist.main.19.1227S1n8S1n82o&algo_pvid=ca16e138-a17e-468f-8eea-7909e1311750&algo_exp_id=ca16e138-a17e-468f-8eea-7909e1311750-18&pdp_ext_f=%7B%22order%22%3A%22335%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%212.04%210.99%21%21%2113.70%216.66%21%402101d2e717868536941996892e0db2%2112000051981440786%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895%3BpisId%3A5000000214298657&curPageLogUid=5pvP0yemqx14&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005010329493907%7C_p_origin_prod%3A (z2, z5, or/and z6)
 
 **Stands:**
 
-https://www.pumpkinknives.com/product/acrylic-block-standee/
+https://www.etsy.com/listing/4535424684/kemonomimi-oc-acrylic-block?sr_prefetch=1&pf_from=shop_home&ref=shop_home_active_3&logging_key=035e67fc5000b476fa2c7ea4d37e52f782b7c9d8%3A4535424684
 (Green catboy version)
 
 https://www.aliexpress.us/item/3256812605475998.html?src=google&src=google&albch=shopping&acnt=631-313-3945&isdl=y&slnk=&plac=&mtctp=&albbt=Google_7_shopping&aff_platform=google&aff_short_key=UneMJZVf&gclsrc=aw.ds&albagn=888888&ds_e_adid=&ds_e_matchtype=&ds_e_device=c&ds_e_network=x&ds_e_product_group_id=&ds_e_product_id=en3256812605475998&ds_e_product_merchant_id=5384339924&ds_e_product_country=US&ds_e_product_language=en&ds_e_product_channel=online&ds_e_product_store_id=&ds_url_v=2&albcp=19262523107&albag=&isSmbAutoCall=false&needSmbHouyi=false&gad_source=1&gad_campaignid=17340500629&gbraid=0AAAAACbpRInpho2lbdniHNWPptKauL23R&gclid=Cj0KCQjwkOvTBhDgARIsAKUNyRtqVJrddV69HLsTXEUMmmFO4PPSfNyYZVb4QpQG5aoI-CbBspBzoHMaAs84EALw_wcB&gatewayAdapt=glo2usa (sku2 or/and sku6)
