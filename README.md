@@ -9,7 +9,7 @@ Other:
 
 https://www.pumpkinknives.com/product/parfait-button-2/
 
-18+/suggestive section:
+https://www.pumpkinknives.com/product/neko-boy-enamel-pin/
 
 https://www.pumpkinknives.com/product/acrylic-block-standee/
 (Green catboy version)
