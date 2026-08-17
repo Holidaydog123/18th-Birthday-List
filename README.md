@@ -3,10 +3,6 @@ Birthday gifts!! :P
 
 Top Priority: 
 
-https://www.pumpkinknives.com/product/neko-boy-enamel-pin/ (Gold version)
-
-Top Priority (18+):
-
 https://www.pumpkinknives.com/product/r18-ribbons-leather-ad-catboys-illustration-book/
 
 Other:
