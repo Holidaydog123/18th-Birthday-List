@@ -3,7 +3,7 @@ Birthday gifts!! :P
 
 **(Keychains and Etsy preferred)**
 
-**(For anonymous gifts: the theme is Nitro Chiral main characters. Akira, Aoba, Youji, Towa, and Konoe)**
+**(For anonymous gifts: the theme is Nitro Chiral main characters: Akira, Aoba, Youji, Towa, and Konoe)**
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
