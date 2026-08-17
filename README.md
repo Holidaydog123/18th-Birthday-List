@@ -2,7 +2,7 @@
 Birthday gifts!! :P
 (keychains and Etsy preferred)
 
-Top Priority/Please get: 
+**Top Priority/Please get:**
 
 https://www.pumpkinknives.com/product/r18-ribbons-leather-ad-catboys-illustration-book/
 
