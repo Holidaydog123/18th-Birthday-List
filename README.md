@@ -11,6 +11,7 @@ https://www.pumpkinknives.com/product/do-not-disturb-catboy/
 https://www.etsy.com/listing/4338637677/blvn-yaoi-protagonist-holographic-heart?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=bumper+sticker+yaoi&ref=sr_gallery-2-52&sr_prefetch=1&pf_from=search&content_source=765f3c63-05c6-4ed8-b7e7-4b36818ff141%3ALTd8051f1221804740131d5001243dd5aa3611eee5&organic_search_click=1&logging_key=765f3c63-05c6-4ed8-b7e7-4b36818ff141%3ALTd8051f1221804740131d5001243dd5aa3611eee5&variation0=5613748868 (Tamamori and Aoba)
 
 Keychains:
+
 https://www.etsy.com/listing/4466371599/dramatical-murder-slow-damage-sweet-pool?ref=shop_home_feat_4&sr_prefetch=1&pf_from=shop_home&logging_key=71b7e427515d0e6af8cd2f8bc4ff55e4f596283a%3A4466371599&variation0=6553553120 (Aoba)
 
 (these 2 go together ⬆️⬇️, from the same seller)
