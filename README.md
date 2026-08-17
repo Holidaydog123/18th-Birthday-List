@@ -8,11 +8,15 @@ https://www.pumpkinknives.com/product/r18-ribbons-leather-ad-catboys-illustratio
 
 https://www.pumpkinknives.com/product/do-not-disturb-catboy/
 
-Other:
+Stickers:
+
+https://www.pumpkinknives.com/product/in-love-with-catboy-sticker/
+
+Pins:
 
 https://www.pumpkinknives.com/product/neko-boy-enamel-pin/
 
+Stands:
+
 https://www.pumpkinknives.com/product/acrylic-block-standee/
 (Green catboy version)
-
-https://www.pumpkinknives.com/product/in-love-with-catboy-sticker/
