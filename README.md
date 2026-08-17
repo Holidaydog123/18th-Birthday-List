@@ -1,7 +1,8 @@
 # 18th-Birthday-List
 Birthday gifts!! :P
+(keychains preferred)
 
-Top Priority: 
+Top Priority/Please get: 
 
 https://www.pumpkinknives.com/product/r18-ribbons-leather-ad-catboys-illustration-book/
 
