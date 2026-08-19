@@ -15,6 +15,10 @@ https://www.etsy.com/listing/4338637677/blvn-yaoi-protagonist-holographic-heart?
 
 https://www.aliexpress.us/item/3256809702966864.html?spm=a2g0o.productlist.main.35.454541dbCWkWnf&algo_pvid=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d&algo_exp_id=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d-32&pdp_ext_f=%7B%22order%22%3A%2244%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%2138.39%2120.53%21%21%21257.50%21137.73%21%4021032c8d17868533217968653e0e11%2112000059773051188%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895%3BpisId%3A5000000214298657&curPageLogUid=pHc08gezrJ6R&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005009889281616%7C_p_origin_prod%3A (Ren A)
 
+**I know we can't afford him, but he's my favorite nitro chiral plushie and I love him, he's so cute, so i'm putting him here just because:**
+
+https://www.ebay.com/itm/406967201205?_skw=nitro+chiral&itmmeta=01M0CE3NQDE5VRS9MCCM7XKM9K&hash=item5ec122adb5:g:WN8AAeSw3t1qHgyH&itmprp=enc%3AAQALAAAA8LB2JXbe%2Bh2pdWBqbR2c2DsDYTd%2BAjZG3vw4XdwaB3f1KuGQ9BSw93Q49wqic8Pu1HLKX4JjJ%2FnCTalHteEXVSQqWoPwUaxKH6Q1mZp5OK286OvwjfcpRQemNx3YmVNezCBhvYJyIDf6YSoYDp4wmWN9K9HGGwBJaQnfx4xbdTUJ0f0DHjekI56IXcOJctbCzPSKcbwW%2BssqQbuQ3VVFsfZOOUYLMg%2BJSraRz2YAKF2qCSWy3oSqiTUmBT47NZdRmhjvtaEXE0x4hvJ%2FMbjbqElS%2BB7qMGZBMtPykb9usoZQN3gSYvU10hwthFCBskeFww%3D%3D%7Ctkp%3ABk9SR-bbjo6DaA
+
 
 **Keychains:**
 
