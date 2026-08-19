@@ -37,7 +37,7 @@ https://www.etsy.com/listing/4476173139/dramatical-murder-dmmd-aoba-slow-damage?
 
 **Pins:**
 
-https://www.aliexpress.us/item/3256810143179155.html?spm=a2g0o.productlist.main.19.1227S1n8S1n82o&algo_pvid=ca16e138-a17e-468f-8eea-7909e1311750&algo_exp_id=ca16e138-a17e-468f-8eea-7909e1311750-18&pdp_ext_f=%7B%22order%22%3A%22335%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%212.04%210.99%21%21%2113.70%216.66%21%402101d2e717868536941996892e0db2%2112000051981440786%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895%3BpisId%3A5000000214298657&curPageLogUid=5pvP0yemqx14&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005010329493907%7C_p_origin_prod%3A (z2, z5, or/and z6)
+https://www.aliexpress.us/item/3256810143179155.html?spm=a2g0o.productlist.main.19.1227S1n8S1n82o&algo_pvid=ca16e138-a17e-468f-8eea-7909e1311750&algo_exp_id=ca16e138-a17e-468f-8eea-7909e1311750-18&pdp_ext_f=%7B%22order%22%3A%22335%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%212.04%210.99%21%21%2113.70%216.66%21%402101d2e717868536941996892e0db2%2112000051981440786%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895%3BpisId%3A5000000214298657&curPageLogUid=5pvP0yemqx14&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005010329493907%7C_p_origin_prod%3A (z2, z5, and z6)
 
 **Stands:**
 
