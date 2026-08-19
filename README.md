@@ -17,6 +17,8 @@ https://www.etsy.com/listing/4338637677/blvn-yaoi-protagonist-holographic-heart?
 
 https://www.aliexpress.us/item/3256809702966864.html?spm=a2g0o.productlist.main.35.454541dbCWkWnf&algo_pvid=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d&algo_exp_id=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d-32&pdp_ext_f=%7B%22order%22%3A%2244%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%2138.39%2120.53%21%21%21257.50%21137.73%21%4021032c8d17868533217968653e0e11%2112000059773051188%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895%3BpisId%3A5000000214298657&curPageLogUid=pHc08gezrJ6R&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005009889281616%7C_p_origin_prod%3A (Ren A)
 
+https://www.etsy.com/listing/1672465116/yaoi-boys?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=togainu+no+chi&ref=sr_gallery-1-60&sr_prefetch=1&pf_from=search&content_source=12a5f7f6-94b3-4c01-ba54-b9bfb2be59c9%3ALT9b4c1c0634fbb048f04df5f28063c1e6858d32f3&organic_search_click=1&logging_key=12a5f7f6-94b3-4c01-ba54-b9bfb2be59c9%3ALT9b4c1c0634fbb048f04df5f28063c1e6858d32f3&variation0=4335507867 (Clear and Aoba)
+
 **Keychains:**
 
 https://www.etsy.com/listing/4466371599/dramatical-murder-slow-damage-sweet-pool?ref=shop_home_feat_4&sr_prefetch=1&pf_from=shop_home&logging_key=71b7e427515d0e6af8cd2f8bc4ff55e4f596283a%3A4466371599&variation0=6553553120 (Aoba)
@@ -32,8 +34,6 @@ https://www.aliexpress.us/item/3256812605436099.html?src=google&src=google&albch
 https://www.etsy.com/listing/4476173139/dramatical-murder-dmmd-aoba-slow-damage?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=bumper+sticker+yaoi&ref=sr_gallery-1-34&sr_prefetch=1&pf_from=search&content_source=b3859c83-f305-4d28-bd40-1a5414ddc2b1%3ALT47e271d5f46ecc75237ecc544d9868a83375801a&organic_search_click=1&logging_key=b3859c83-f305-4d28-bd40-1a5414ddc2b1%3ALT47e271d5f46ecc75237ecc544d9868a83375801a&variation0=6427746193 (any option, Aoba or both preferred)
 
 https://www.etsy.com/listing/1847670415/aoba-double-sided-charm-holographic?ref=cart
-
-https://www.etsy.com/listing/1672465116/yaoi-boys?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=togainu+no+chi&ref=sr_gallery-1-60&sr_prefetch=1&pf_from=search&content_source=12a5f7f6-94b3-4c01-ba54-b9bfb2be59c9%3ALT9b4c1c0634fbb048f04df5f28063c1e6858d32f3&organic_search_click=1&logging_key=12a5f7f6-94b3-4c01-ba54-b9bfb2be59c9%3ALT9b4c1c0634fbb048f04df5f28063c1e6858d32f3&variation0=4335507867 (Clear or Aoba)
 
 **Stickers:**
 
