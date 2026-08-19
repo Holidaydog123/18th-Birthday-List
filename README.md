@@ -17,6 +17,8 @@ https://www.etsy.com/listing/4353599002/bl-protag-photocards?ls=r&ref=internal_s
 
 [https://www.etsy.com/listing/1767501479/dmmd-enamel-pins?ls=r&ref=internal_similar_listing_bot-12&sr_prefetch=0&pf_from=listing&content_source=4a08bd21d8e707e87749e7f0e756d5ad%253ALT131ac237bbd7f17ac00f4c1e5a614f4604dbe286&logging_key=4a08bd21d8e707e87749e7f0e756d5ad%3ALT131ac237bbd7f17ac00f4c1e5a614f4604dbe286&listing_id=1767501479&listing_slug=dmmd-enamel-pins&variation0=4652906539 (Gothic Aoba)
 
+https://www.mercari.com/us/item/m28458684995/?ref=search_results
+
 **Keychains:**
 
 https://www.etsy.com/listing/4466371599/dramatical-murder-slow-damage-sweet-pool?ref=shop_home_feat_4&sr_prefetch=1&pf_from=shop_home&logging_key=71b7e427515d0e6af8cd2f8bc4ff55e4f596283a%3A4466371599&variation0=6553553120 (Aoba)
