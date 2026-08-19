@@ -3,7 +3,7 @@ Birthday gifts!! :P
 
 **(Keychains and Etsy preferred)**
 
-**(For anonymous gifts: the theme is Nitro Chiral main characters: Akira, Aoba, Youji, Towa, and Konoe)**
+**(For anonymous gifts: the theme is Nitro Chiral main characters: Akira, Aoba, Youji, Towa, and Konoe. AND ANYTHING FROM THE OFFICIAL NITRO CHIRAL NIGHT 10TH ANNIVERSARY aka THE CHIRAL NIGHT (not to be mistaken with the chiral night 20th anniversary.)**
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
@@ -16,6 +16,12 @@ https://www.etsy.com/listing/4338637677/blvn-yaoi-protagonist-holographic-heart?
 https://www.aliexpress.us/item/3256809702966864.html?spm=a2g0o.productlist.main.35.454541dbCWkWnf&algo_pvid=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d&algo_exp_id=0c97dd1f-8cc1-4894-8df6-b17170bc4f4d-32&pdp_ext_f=%7B%22order%22%3A%2244%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%2138.39%2120.53%21%21%21257.50%21137.73%21%4021032c8d17868533217968653e0e11%2112000059773051188%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895%3BpisId%3A5000000214298657&curPageLogUid=pHc08gezrJ6R&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005009889281616%7C_p_origin_prod%3A (Ren A)
 
 https://www.etsy.com/listing/4353599002/bl-protag-photocards?ls=r&ref=internal_similar_listing_bot-1&sr_prefetch=0&pf_from=listing&content_source=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&logging_key=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&listing_id=4353599002&listing_slug=bl-protag-photocards&variation0=6190387724 (Akira (preferred), Youji, or Towa)
+
+**Official merch:**
+
+https://www.mercari.com/us/item/m86182451630/?ref=search_results
+
+https://www.mercari.com/us/item/m73424821895/
 
 **Keychains:**
 
