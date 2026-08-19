@@ -15,6 +15,8 @@ https://www.aliexpress.us/item/3256809702966864.html?spm=a2g0o.productlist.main.
 
 https://www.etsy.com/listing/4353599002/bl-protag-photocards?ls=r&ref=internal_similar_listing_bot-1&sr_prefetch=0&pf_from=listing&content_source=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&logging_key=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&listing_id=4353599002&listing_slug=bl-protag-photocards&variation0=6190387724 (Akira (preferred), Youji, or Towa)
 
+[https://www.etsy.com/listing/1767501479/dmmd-enamel-pins?ls=r&ref=internal_similar_listing_bot-12&sr_prefetch=0&pf_from=listing&content_source=4a08bd21d8e707e87749e7f0e756d5ad%253ALT131ac237bbd7f17ac00f4c1e5a614f4604dbe286&logging_key=4a08bd21d8e707e87749e7f0e756d5ad%3ALT131ac237bbd7f17ac00f4c1e5a614f4604dbe286&listing_id=1767501479&listing_slug=dmmd-enamel-pins&variation0=4652906539 (Gothic Aoba)
+
 **Keychains:**
 
 https://www.etsy.com/listing/4466371599/dramatical-murder-slow-damage-sweet-pool?ref=shop_home_feat_4&sr_prefetch=1&pf_from=shop_home&logging_key=71b7e427515d0e6af8cd2f8bc4ff55e4f596283a%3A4466371599&variation0=6553553120 (Aoba)
@@ -34,8 +36,6 @@ https://www.aliexpress.us/item/3256812605436099.html?src=google&src=google&albch
 https://www.etsy.com/listing/4476173139/dramatical-murder-dmmd-aoba-slow-damage?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=bumper+sticker+yaoi&ref=sr_gallery-1-34&sr_prefetch=1&pf_from=search&content_source=b3859c83-f305-4d28-bd40-1a5414ddc2b1%3ALT47e271d5f46ecc75237ecc544d9868a83375801a&organic_search_click=1&logging_key=b3859c83-f305-4d28-bd40-1a5414ddc2b1%3ALT47e271d5f46ecc75237ecc544d9868a83375801a&variation0=6427746193 (any option, Aoba or both preferred)
 
 **Pins:**
-
-https://www.etsy.com/listing/1767501479/dmmd-enamel-pins?ls=r&ref=internal_similar_listing_bot-12&sr_prefetch=0&pf_from=listing&content_source=4a08bd21d8e707e87749e7f0e756d5ad%253ALT131ac237bbd7f17ac00f4c1e5a614f4604dbe286&logging_key=4a08bd21d8e707e87749e7f0e756d5ad%3ALT131ac237bbd7f17ac00f4c1e5a614f4604dbe286&listing_id=1767501479&listing_slug=dmmd-enamel-pins&variation0=4652906539 (Gothic Aoba)
 
 https://www.aliexpress.us/item/3256810143179155.html?spm=a2g0o.productlist.main.19.1227S1n8S1n82o&algo_pvid=ca16e138-a17e-468f-8eea-7909e1311750&algo_exp_id=ca16e138-a17e-468f-8eea-7909e1311750-18&pdp_ext_f=%7B%22order%22%3A%22335%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%212.04%210.99%21%21%2113.70%216.66%21%402101d2e717868536941996892e0db2%2112000051981440786%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895%3BpisId%3A5000000214298657&curPageLogUid=5pvP0yemqx14&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005010329493907%7C_p_origin_prod%3A (z2, z5, or/and z6)
 
