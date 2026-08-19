@@ -17,10 +17,6 @@ https://www.aliexpress.us/item/3256809702966864.html?spm=a2g0o.productlist.main.
 
 https://www.etsy.com/listing/4353599002/bl-protag-photocards?ls=r&ref=internal_similar_listing_bot-1&sr_prefetch=0&pf_from=listing&content_source=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&logging_key=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&listing_id=4353599002&listing_slug=bl-protag-photocards&variation0=6190387724 (Akira (preferred), Youji, or Towa)
 
-**Official merch:**
-
-https://www.mercari.com/us/item/m73424821895/
-
 **Keychains:**
 
 https://www.etsy.com/listing/4466371599/dramatical-murder-slow-damage-sweet-pool?ref=shop_home_feat_4&sr_prefetch=1&pf_from=shop_home&logging_key=71b7e427515d0e6af8cd2f8bc4ff55e4f596283a%3A4466371599&variation0=6553553120 (Aoba)
