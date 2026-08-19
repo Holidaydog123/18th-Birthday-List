@@ -19,8 +19,6 @@ https://www.etsy.com/listing/4353599002/bl-protag-photocards?ls=r&ref=internal_s
 
 **Official merch:**
 
-https://www.mercari.com/us/item/m86182451630/?ref=search_results
-
 https://www.mercari.com/us/item/m73424821895/
 
 **Keychains:**
