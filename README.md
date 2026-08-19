@@ -35,6 +35,10 @@ https://www.etsy.com/listing/4476173139/dramatical-murder-dmmd-aoba-slow-damage?
 
 https://www.etsy.com/listing/1847670415/aoba-double-sided-charm-holographic?ref=cart
 
+**Photocards:**
+
+https://www.etsy.com/listing/4353599002/bl-protag-photocards?ls=r&ref=internal_similar_listing_bot-1&sr_prefetch=0&pf_from=listing&content_source=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&logging_key=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&listing_id=4353599002&listing_slug=bl-protag-photocards&variation0=6190387724 (Akira (preferred), Youji, or Towa)
+
 **Stickers:**
 
 https://www.etsy.com/listing/4539788921/in-love-with-a-catboy-sticker?sr_prefetch=1&pf_from=shop_home&ref=shop_home_active_2&crt=1&logging_key=9a0a1ac5ce36973d0fe3fa742dc2d1498adbd474%3A4539788921
@@ -50,19 +54,14 @@ https://www.aliexpress.us/item/3256810143179155.html?spm=a2g0o.productlist.main.
 https://www.etsy.com/listing/4535424684/kemonomimi-oc-acrylic-block?sr_prefetch=1&pf_from=shop_home&ref=shop_home_active_3&logging_key=035e67fc5000b476fa2c7ea4d37e52f782b7c9d8%3A4535424684
 (Green catboy version)
 
+https://www.aliexpress.us/item/3256812667577230.html?spm=a2g0o.productlist.main.12.763e41dbQSIQvV&algo_pvid=15c9b088-4cfa-46f9-ac6d-5081035d57e4&algo_exp_id=15c9b088-4cfa-46f9-ac6d-5081035d57e4-11&pdp_ext_f=%7B%22order%22%3A%22-1%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%215.84%215.84%21%21%2139.17%2139.17%21%402101e81117865090816856850e0f19%2112000059521021226%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895&curPageLogUid=KDZRoVv4e6i5&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005012853891982%7C_p_origin_prod%3A (Any option, Akira (SKU 1) preferred)
+
+https://www.aliexpress.us/item/3256811831873475.html?spm=a2g0o.productlist.main.33.4307MafhMafhav&algo_pvid=d8ac84b1-6350-4ffa-8061-56b9060d2634&algo_exp_id=d8ac84b1-6350-4ffa-8061-56b9060d2634-32&pdp_ext_f=%7B%22order%22%3A%2213%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%214.72%214.72%21%21%2131.65%2131.65%21%402101d33417865085629032748e1039%2112000057288235821%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895&curPageLogUid=DdsI3tEZwtKy&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005012018188227%7C_p_origin_prod%3A (any option, Akira (color:1) preferred)
+
 https://www.aliexpress.us/item/3256812605475998.html?src=google&src=google&albch=shopping&acnt=631-313-3945&isdl=y&slnk=&plac=&mtctp=&albbt=Google_7_shopping&aff_platform=google&aff_short_key=UneMJZVf&gclsrc=aw.ds&albagn=888888&ds_e_adid=&ds_e_matchtype=&ds_e_device=c&ds_e_network=x&ds_e_product_group_id=&ds_e_product_id=en3256812605475998&ds_e_product_merchant_id=5384339924&ds_e_product_country=US&ds_e_product_language=en&ds_e_product_channel=online&ds_e_product_store_id=&ds_url_v=2&albcp=19262523107&albag=&isSmbAutoCall=false&needSmbHouyi=false&gad_source=1&gad_campaignid=17340500629&gbraid=0AAAAACbpRInpho2lbdniHNWPptKauL23R&gclid=Cj0KCQjwkOvTBhDgARIsAKUNyRtqVJrddV69HLsTXEUMmmFO4PPSfNyYZVb4QpQG5aoI-CbBspBzoHMaAs84EALw_wcB&gatewayAdapt=glo2usa (sku2 or/and sku6)
 
 https://www.aliexpress.us/item/3256812398683159.html?src=google&src=google&albch=shopping&acnt=631-313-3945&isdl=y&slnk=&plac=&mtctp=&albbt=Google_7_shopping&aff_platform=google&aff_short_key=UneMJZVf&gclsrc=aw.ds&albagn=888888&ds_e_adid=&ds_e_matchtype=&ds_e_device=c&ds_e_network=x&ds_e_product_group_id=&ds_e_product_id=en3256812398683159&ds_e_product_merchant_id=5712994874&ds_e_product_country=US&ds_e_product_language=en&ds_e_product_channel=online&ds_e_product_store_id=&ds_url_v=2&albcp=19262523107&albag=&isSmbAutoCall=false&needSmbHouyi=false&gad_source=1&gad_campaignid=17340500629&gbraid=0AAAAACbpRInpho2lbdniHNWPptKauL23R&gclid=Cj0KCQjwkOvTBhDgARIsAKUNyRvQmM6Kav9EV0HBW4qn5ifA35jaBSdr5wGapPq1AZ5Sanme4gvU1xAaAlGWEALw_wcB&gatewayAdapt=glo2usa (s3, s10, s5, s2, or s12)
 
-https://www.aliexpress.us/item/3256811831873475.html?spm=a2g0o.productlist.main.33.4307MafhMafhav&algo_pvid=d8ac84b1-6350-4ffa-8061-56b9060d2634&algo_exp_id=d8ac84b1-6350-4ffa-8061-56b9060d2634-32&pdp_ext_f=%7B%22order%22%3A%2213%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%214.72%214.72%21%21%2131.65%2131.65%21%402101d33417865085629032748e1039%2112000057288235821%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895&curPageLogUid=DdsI3tEZwtKy&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005012018188227%7C_p_origin_prod%3A (any option, Akira (color:1) preferred)
-
-https://www.aliexpress.us/item/3256812667577230.html?spm=a2g0o.productlist.main.12.763e41dbQSIQvV&algo_pvid=15c9b088-4cfa-46f9-ac6d-5081035d57e4&algo_exp_id=15c9b088-4cfa-46f9-ac6d-5081035d57e4-11&pdp_ext_f=%7B%22order%22%3A%22-1%22%2C%22eval%22%3A%221%22%2C%22fromPage%22%3A%22search%22%7D&pdp_npi=6%40dis%21USD%215.84%215.84%21%21%2139.17%2139.17%21%402101e81117865090816856850e0f19%2112000059521021226%21sea%21US%211667127660%21X%211%210%21n_tag%3A-29919%3Bd%3Ad2f04c37%3Bm03_new_user%3A-29895&curPageLogUid=KDZRoVv4e6i5&utparam-url=scene%3Asearch%7Cquery_from%3A%7Cx_object_id%3A1005012853891982%7C_p_origin_prod%3A (Any option, Akira (SKU 1) preferred)
-
 **Plush:**
 
 https://www.aliexpress.us/item/3256812520888134.html?src=google&src=google&albch=shopping&acnt=231-612-1468&isdl=y&slnk=&plac=&mtctp=&albbt=Google_7_shopping&aff_platform=google&aff_short_key=_oFgTQeV&gclsrc=aw.ds&albagn=888888&ds_e_adid=&ds_e_matchtype=&ds_e_device=c&ds_e_network=x&ds_e_product_group_id=&ds_e_product_id=en3256812520888134&ds_e_product_merchant_id=107847537&ds_e_product_country=US&ds_e_product_language=en&ds_e_product_channel=online&ds_e_product_store_id=&ds_url_v=2&albcp=22973313026&albag=&isSmbAutoCall=false&needSmbHouyi=false&gad_source=1&gad_campaignid=22977460537&gbraid=0AAAABBR8kP3dv7gTxl6vQNDXtnFDLaCO0&gclid=Cj0KCQjwkOvTBhDgARIsAKUNyRvNdA8c2zG8NCBZoQ1qAJBGVBaUulGdJM7k1rDjCVt9d8JzZxQCXqoaAuv_EALw_wcB&gatewayAdapt=glo2usa (Style A)
-
-
-**Other:**
-
-https://www.etsy.com/listing/4353599002/bl-protag-photocards?ls=r&ref=internal_similar_listing_bot-1&sr_prefetch=0&pf_from=listing&content_source=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&logging_key=574166b2e09837232f643e205672cd64%3ALT0adbf04e0c18f0a7be4d27cbb18d2430a4023779&listing_id=4353599002&listing_slug=bl-protag-photocards&variation0=6190387724 (Akira (preferred), Youji, or Towa)
