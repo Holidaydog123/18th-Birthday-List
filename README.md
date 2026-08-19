@@ -21,15 +21,15 @@ https://www.etsy.com/listing/4466371599/dramatical-murder-slow-damage-sweet-pool
 
 https://www.etsy.com/listing/4466412633/hashihime-of-the-old-book-town-cat-maid?ref=sidebar_cart_view_listing (Hakase)
 
+https://www.etsy.com/listing/1847670415/aoba-double-sided-charm-holographic?ref=cart
+
+https://www.etsy.com/listing/1672465116/yaoi-boys?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=togainu+no+chi&ref=sr_gallery-1-60&sr_prefetch=1&pf_from=search&content_source=12a5f7f6-94b3-4c01-ba54-b9bfb2be59c9%3ALT9b4c1c0634fbb048f04df5f28063c1e6858d32f3&organic_search_click=1&logging_key=12a5f7f6-94b3-4c01-ba54-b9bfb2be59c9%3ALT9b4c1c0634fbb048f04df5f28063c1e6858d32f3&variation0=4335507867 (Clear and Aoba)
+
 https://www.aliexpress.us/item/3256812660893907.html?src=google&src=google&albch=shopping&acnt=631-313-3945&isdl=y&slnk=&plac=&mtctp=&albbt=Google_7_shopping&aff_platform=google&aff_short_key=UneMJZVf&gclsrc=aw.ds&albagn=888888&ds_e_adid=&ds_e_matchtype=&ds_e_device=c&ds_e_network=x&ds_e_product_group_id=&ds_e_product_id=en3256812660893907&ds_e_product_merchant_id=5734720050&ds_e_product_country=US&ds_e_product_language=en&ds_e_product_channel=online&ds_e_product_store_id=&ds_url_v=2&albcp=19262523107&albag=&isSmbAutoCall=false&needSmbHouyi=false&gad_source=1&gad_campaignid=17340500629&gbraid=0AAAAACbpRInpho2lbdniHNWPptKauL23R&gclid=Cj0KCQjwkOvTBhDgARIsAKUNyRvRFw3-n0CDkfJyrzdTsMSoKirMWrbVohT5H5-VJteFOjtHsQ5O3cUaArQ9EALw_wcB&gatewayAdapt=glo2usa (sku1 or sku3)
 
 https://www.aliexpress.us/item/3256812605436099.html?src=google&src=google&albch=shopping&acnt=631-313-3945&isdl=y&slnk=&plac=&mtctp=&albbt=Google_7_shopping&aff_platform=google&aff_short_key=UneMJZVf&gclsrc=aw.ds&albagn=888888&ds_e_adid=&ds_e_matchtype=&ds_e_device=c&ds_e_network=x&ds_e_product_group_id=&ds_e_product_id=en3256812605436099&ds_e_product_merchant_id=5384339924&ds_e_product_country=US&ds_e_product_language=en&ds_e_product_channel=online&ds_e_product_store_id=&ds_url_v=2&albcp=19262523107&albag=&isSmbAutoCall=false&needSmbHouyi=false&gad_source=1&gad_campaignid=17340500629&gbraid=0AAAAACbpRInpho2lbdniHNWPptKauL23R&gclid=Cj0KCQjwkOvTBhDgARIsAKUNyRsHqrbIvLRSQ3K3U57Qe5YLybU2RPV2tYDw9daZ5yAWwbZIfaC_qdcaAhZKEALw_wcB&gatewayAdapt=glo2usa (sku5, sku1, sku3, or sku6)
 
 https://www.etsy.com/listing/4476173139/dramatical-murder-dmmd-aoba-slow-damage?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=bumper+sticker+yaoi&ref=sr_gallery-1-34&sr_prefetch=1&pf_from=search&content_source=b3859c83-f305-4d28-bd40-1a5414ddc2b1%3ALT47e271d5f46ecc75237ecc544d9868a83375801a&organic_search_click=1&logging_key=b3859c83-f305-4d28-bd40-1a5414ddc2b1%3ALT47e271d5f46ecc75237ecc544d9868a83375801a&variation0=6427746193 (any option, Aoba or both preferred)
-
-https://www.etsy.com/listing/1847670415/aoba-double-sided-charm-holographic?ref=cart
-
-https://www.etsy.com/listing/1672465116/yaoi-boys?ls=s&ga_order=most_relevant&ga_search_type=all&ga_view_type=gallery&ga_search_query=togainu+no+chi&ref=sr_gallery-1-60&sr_prefetch=1&pf_from=search&content_source=12a5f7f6-94b3-4c01-ba54-b9bfb2be59c9%3ALT9b4c1c0634fbb048f04df5f28063c1e6858d32f3&organic_search_click=1&logging_key=12a5f7f6-94b3-4c01-ba54-b9bfb2be59c9%3ALT9b4c1c0634fbb048f04df5f28063c1e6858d32f3&variation0=4335507867 (Clear and Aoba)
 
 **Photocards:**
 
