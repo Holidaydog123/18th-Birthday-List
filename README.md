@@ -49,6 +49,8 @@ https://www.etsy.com/listing/4539788921/in-love-with-a-catboy-sticker?sr_prefetc
 
 https://www.etsy.com/listing/1185022261/anime-neko-boy-ceo-of-cat-boys-enamel?sr_prefetch=1&pf_from=shop_home&ref=shop_home_active_11&crt=1&logging_key=dbdb4314350e6c22b9c30e901bc4e8d48c9d8440%3A1185022261 (gold)
 
+https://www.etsy.com/listing/1767501479/dmmd-enamel-pins?ls=r&ref=internal_similar_listing_bot-12&sr_prefetch=0&pf_from=listing&content_source=4a08bd21d8e707e87749e7f0e756d5ad%253ALT131ac237bbd7f17ac00f4c1e5a614f4604dbe286&logging_key=4a08bd21d8e707e87749e7f0e756d5ad%3ALT131ac237bbd7f17ac00f4c1e5a614f4604dbe286&listing_id=1767501479&listing_slug=dmmd-enamel-pins&variation0=4652906539 (Gothic Aoba)
+
 **Stands:**
 
 https://www.etsy.com/listing/4535424684/kemonomimi-oc-acrylic-block?sr_prefetch=1&pf_from=shop_home&ref=shop_home_active_3&logging_key=035e67fc5000b476fa2c7ea4d37e52f782b7c9d8%3A4535424684
